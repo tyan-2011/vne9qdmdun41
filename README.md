@@ -15,6 +15,10 @@ Performance: Epic Games / Steam
 # 🔐Password: 888
 
 # ⚙️𝐅𝐮𝐧𝐜𝐭𝐢𝐨𝐧𝐬:
+![image](https://github.com/tyan-2011/vne9qdmdun41/assets/153708948/09540ea6-358b-4ef9-b54c-6d14810321a7)
+![image](https://github.com/tyan-2011/vne9qdmdun41/assets/153708948/24ee2314-293e-4267-8af9-55c051896b97)
+
+
 # AimBot: 
 Radius
 
